@@ -1,1 +1,0 @@
-Je m'appelle Djerou et je suis agresseur
